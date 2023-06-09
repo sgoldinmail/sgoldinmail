@@ -2,4 +2,4 @@
 - 👀 I’m interested in QA
 - 🌱 I’m currently learning in Skillbox
 - 💞️ I’m looking to collaborate on QA
-- 📫 How to reach me sgoldin@mail.ru
+- 📫 How to reach me sgoldin@mail.ru, @SERGEY_11234567890
